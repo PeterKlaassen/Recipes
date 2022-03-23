@@ -51,4 +51,8 @@ Ladle the melted chocolate over the bar to cover all sides, then place it on the
 Repeat with the remaining bars till they are all covered. Leave to cool at room temperature or if you can't wait put them in the fridge to cool to speed things up!!
 Enjoy!!
 
+
 ###**in production now**#.2
+
+###**in production now**12
+
