@@ -1,11 +1,11 @@
 #**chocolat salted caramel bars**
 
-A healthier delicious treat that will leave you looking for more!! 
+A healthier delicious treat that will leave you looking for more!!
 These chocolate salted caramel bars will leave you looking for more!! We make a tasty biscuit base,
 a smooth date caramel and then top it all off by covering them in chocolate!!
 
 ###**ingredients**
- 
+
 ####Base layer
 
 150 g almond butter
@@ -27,7 +27,7 @@ Pinch salt
 ####300g dark chocolate
 
 ###**instructions**
- 
+
 ####Base layer:
 
 In a food processor blend the almonds first into a flour like consistency,
@@ -51,6 +51,4 @@ Ladle the melted chocolate over the bar to cover all sides, then place it on the
 Repeat with the remaining bars till they are all covered. Leave to cool at room temperature or if you can't wait put them in the fridge to cool to speed things up!!
 Enjoy!!
 
-TESTETTTETETETETETETETETETETETETTETETETETTE
-
-2e testtttttttttt
+###**in production now**12
